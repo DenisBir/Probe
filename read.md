@@ -4,8 +4,6 @@
 
 18:08
 
-3 ctvbyfh gj ubne
+Убрал не корректные записи
 
-jjjguheofg
-
-;aojngovren
+сделал это в  *07:19*
